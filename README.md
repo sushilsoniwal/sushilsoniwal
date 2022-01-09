@@ -7,4 +7,4 @@
 - 💬 Ask me about DSA And Campus Ambassador Programs.
 - 📫 How to reach me: Twitter :- https://twitter.com/sushilsoniwal24
 - 😄 Pronouns: He/His.
-- ⚡ Fun fact: Black Theme Coder.
+- ⚡ Fun fact: Dark Theme Coder.
